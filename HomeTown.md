@@ -1,1 +1,2 @@
-Buffalo NY
+Albany NY
+Rochester, NY
