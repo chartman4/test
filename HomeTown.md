@@ -1,2 +1,1 @@
-Albany NY
-Rochester, NY
+Columbus, GA
