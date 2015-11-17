@@ -1,1 +1,1 @@
-Rochester NY
+Buffalo NY
